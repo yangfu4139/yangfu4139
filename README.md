@@ -1,7 +1,7 @@
 ### Hi there 👋
-# Hello, I am YangFu 👏🏻
+# Hello, I am Yang 👏🏻
 
-**Preview**：From dazhou, China 🏝, love coding 🐍. A student 🏫，love photographing beautiful things🌿 and a little fat🍔.
+**Preview**：From Dazhou, China 🏝, love coding 🐍. A student 🏫，love photographing beautiful things🌿 and a little fat🍔.
 
 **Contact**：fuyang4139@qq.com
 
