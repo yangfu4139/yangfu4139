@@ -1,5 +1,5 @@
-### Hi there 👋
-# Hello, I am Yang 👏🏻
+Hi there 👋
+Hello, I am Yang 👏🏻
 
 **Preview**：From Dazhou, China , love coding 🐑. A student 🏫，love photographing beautiful things🌿 and a little fat🍔 and Sweet🍬.
 
